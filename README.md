@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Talosrio
+- 👀 I’m interested in devlopment of IT
+- 🌱 I’m currently learning new technologies
+- 💞️ I’m looking to collaborate on share knowledge
+- 📫 How to reach me talosrio@gmail.com
